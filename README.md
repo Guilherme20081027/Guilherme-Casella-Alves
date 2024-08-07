@@ -1,6 +1,8 @@
 # Guilherme-Casella-Alves
 rzety ftymuyjumtrcdrmtfyru76rtkm
 
-boas vindas a casa do caralho
+boas vindas
 
 Meu nome e Jailson Mendes
+
+meu sonho e ser cantor sertanejo
